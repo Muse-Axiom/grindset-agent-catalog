@@ -1,6 +1,7 @@
 # GRINDSET — Agent Catalog
 
-Merch for the grind. Serious anime/warrior-style gym and streetwear designs.
+Merch for the grind. Serious anime/warrior-style gym and streetwear designs:
+heavyweight gym t-shirts, gym hoodies, and motivational gym stickers.
 Store: https://grindset.printify.me
 
 Live products: 22 | Priced variants: 278 | Currency: USD
